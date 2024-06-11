@@ -1,1 +1,1 @@
-Vinta Store Analytics
+Vrinda Store Analytics
